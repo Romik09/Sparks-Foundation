@@ -1,1 +1,1 @@
-# Donatate a life-Website
+# Donate a life-Website
